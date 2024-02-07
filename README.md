@@ -16,4 +16,4 @@
 
 💼 Open to networking and discussions regarding potential collaborations in the tech and startup arena.
 
-😄 Pronouns: Entrepreneur 
+😄 Pronouns: Entrepreneur.
