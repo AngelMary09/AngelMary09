@@ -25,8 +25,6 @@
 
 😄 Pronouns: Entrepreneur.
 
-📫 How to reach me: https://www.linkedin.com/in/mary-angel-87a8222b3
-
 
 
 <h3 align="left">Languages and Tools:</h3>
